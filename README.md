@@ -32,4 +32,4 @@ Contact Information:
 
 How to Contact us
 If you have any questions about this Privacy Policy or our information processing practices, you can contact us in the following ways:
-E-mail: bsandrodev@gmail.com
+E-mail: bsdevgame@gmail.com
