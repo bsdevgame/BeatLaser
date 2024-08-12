@@ -1,3 +1,5 @@
+Privacy Policy
+
 The Privacy Policy for Beat Laser details how the game’s developer, Beat Games, collects, uses, and protects your personal information. Although I can't provide the exact text, I can give you a general overview of what such a policy might include. For the most accurate and up-to-date information, you should consult the official Privacy Policy on the Beat Laser website or the platform through which you access the game.
 
 Here's what you might expect from the Privacy Policy:
